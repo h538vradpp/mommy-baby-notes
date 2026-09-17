@@ -1,0 +1,116 @@
+# 南阳市中心医院专家提醒：“黑色素瘤”上热搜 身上有它要警惕
+
+> 更新时间：2026-09-17 (UTC+8)
+
+6月14日，一个悲伤的消息冲上大众媒体平台热搜高位：第二季《中国好声音》亚军张恒远罹患恶性黑色素瘤因病去世。很多人因此关注到恶性黑色素瘤。当天上午，不少年轻患者因为担心自己身上的痣有问题，纷纷不约而同地去往医院挂号排查。就恶性黑色素瘤的相关问题，南阳市中心医院皮肤科主任卞坤鹏给我们进行了解答。
+一上午就有20多位年轻人来排查“我这里，一上午差不多有20多位患者来问诊、排查。”南阳市中心医师皮肤科主任卞坤鹏说，“这些患者都提到，看到有明星因为这个疾病去世，担心自己身上的痣是恶性肿瘤，想排查一下。”其中一位20多岁的小伙子特别紧张，他说自己身上长了很多痣，根据网上的资料一一对照，发现有一个痣有6毫米大，很害怕会中招。卞坤鹏解释，6毫米是痣的正常大小，并未大到过分，“临床中，有些比较大的，会达到1.5厘米左右，不过，大小并不是判断是否是肿瘤的关键标准。”
+
+什么是恶性黑色素瘤？
+“这是一种由黑色素细胞癌变形成的恶性肿瘤，恶性程度比较高，如果发现得晚，预后会不太好，也就是治愈可能性比较低。”卞坤鹏解释，部分黑色素瘤是由身体上的色素痣的癌变而来，少数外伤引起，如肢端恶性黑色素瘤。这些痣有些是天生就有，有的则是后天长出来的，“它可长于身体任何部位，但四肢最常见，如手指末端，甲下足底等易摩擦部位，面部及光暴露部位也非常常见。临床表现为黑色的丘疹或结节，有时可破溃，一般无自觉症状，黑色素瘤恶性程度高，一旦出现癌变，进展快、转移快、死亡率高，早期诊断和治疗非常重要。”不必“见痣色变”，可以这样自查卞坤鹏也提醒大家，虽然发病程度比较高，但大家也不要“见痣色变”，因为不是所有的痣都会癌变，“只要它的大小、形态和颜色不出现异常变化，就无须过分担心。”关于恶性黑色素瘤的判断，有一个通过观察痣的形态特征来判断其是否为恶性的方法，也被称为ABCDE原则，就是指：A：形状不对称（Asymmetry）良性的色素痣往往形状较对称，以皮疹中轴画一个+,如果左右或上下不对称需警惕恶变的可能。B：边界不清或不规则（Border）良性色素痣边缘往往整齐而规则，若边界变得模糊不清，需要警惕。C：颜色不均匀（Border） 如果同一个痣的颜色深浅不均一要值得引起注意。D：直径(Diameter)对于亚洲人来说，位于手掌、足底、手指甲、脚趾甲的痣，直径(宽度) 大于 3 mm;位于其余部位的痣，直径大于6 mm，需留心观察提高警惕。E: 隆起 (Elevation)一些早期黑素瘤整个瘤体会有轻微隆起，需警惕。 卞坤鹏提醒：“ABCDE原则是一种简单易行的方法，可以帮助人们自我初步判断有没有恶性风险。但需要注意的是，该方法并不是100%准确，只能作为初步参考，黑色素瘤恶性程度高，易转移，常常危及生命，早期诊断和治疗非常重要，最好还是去正规医院及时就诊，让专科大夫通过专业的组织病理检查和皮肤镜检查进行判断。”宣传科
+
+编辑：武昱汐
+
+责编：刘一村
+
+审核：徐   进
+
+## 相关阅读
+
+- [让希望“不止罕见”！福医附一医院举办罕见病多学科联合义诊活动，众多主流媒体关注！](https://github.com/qws8inv2p1/mommy-baby-notes/blob/main/20260916qyiu/wnyneomjxh.md)
+- [检查出了梅毒该怎么办](https://github.com/o6724tzna3/parenting-daily-tips/blob/main/20260915dfqn/gmtysufkou.md)
+- [在长春做试管婴儿各环节收费多少钱？](https://github.com/in5gxld2dh/mommy-care-diary/blob/main/20260911nyao/zoehqqlnkl.md)
+- [女孩与人发生关系怀孕，家长找上男方，没想男孩父母做法让人吃惊](https://github.com/vjd2jnnrxj/kids-health-guide/blob/main/20260911hmcf/dgslnfjbbd.md)
+- [月经10天卵泡一般多大](https://github.com/tp7gz3q4gt/child-care-essays/blob/main/20260915tqoi/xgjkoeczug.md)
+- [泰国三代试管的医院TOP10名单公开，附三代试管流程！](https://github.com/w4nejibsgs/baby-care-journal/blob/main/20260910gvel/ajhhedfcbb.md)
+- [胚胎停育的常见原因有哪些](https://github.com/znp78by4gt/toddler-food-ideas/blob/main/20260915phhl/hhtgmyuley.md)
+- [什么？生虫的米竟然还能继续吃！](https://github.com/t4im9r1jji/mom-life-notes/blob/main/20260916fzzj/lhjpeuufkw.md)
+- [柬埔寨双阳hiv试管费用明细清单来了(柬埔寨做试管签证)](https://github.com/l5q2j5iic2/mommy-baby-notes/blob/main/20260910qvqw/rjrfewbfwd.md)
+- [【知识】宝宝3岁前认不出颜色，一定是色盲?](https://github.com/w15ezo8wwd/baby-care-essays/blob/main/20260916lety/fvfgacxygr.md)
+- [第一医院直播秀，手术室“搬”到大屏幕~](https://github.com/uyv65mt699/pregnancy-diary-hub/blob/main/20260911pzjj/dmwzclbnli.md)
+- [胎儿臀位孕妇少坐多走动能纠正成头位吗？](https://github.com/opigz3v852/family-health-notes/blob/main/20260915gpbz/iqeakvkpnv.md)
+- [“神兽”也要退出春节档了……这份返校攻略，家长必看！](https://github.com/ualf0k98cv/baby-care-journal/blob/main/20260917stcw/mzsorwceqa.md)
+- [试管婴儿调理卵泡吃什么好，促进卵泡生长的食物盘点](https://github.com/b1xp80vbpv/family-health-notes/blob/main/20260915fkpa/dvclnxptrd.md)
+- [试管婴儿流产主要原因是](https://github.com/s6nb3rgjk9/parenting-daily-tips/blob/main/20260915ndri/yyotwhcrbk.md)
+- [黄桂英医生二代试管婴儿冻胚移植如何？](https://github.com/zntce2ojnh/mommy-baby-notes/blob/main/20260910xbct/khkilxycic.md)
+- [泌乳素高是什么原因](https://github.com/qnifxoey3y/child-care-essays/blob/main/20260915lcqa/vlwzjymaog.md)
+- [移植两次都不着床什么原因](https://github.com/km2vgbd5nt/pregnancy-nutrition-notes/blob/main/20260915zbkz/uisceispkz.md)
+- [【妇产要闻】儿童健康中心---为儿童健康成长保驾护航](https://github.com/exfk8bm0mc/pregnancy-nutrition-notes/blob/main/20260916kayd/oalqucircz.md)
+- [【健康科普】呼吸道传染病高发期，这样预防才能降低感染风险！](https://github.com/mxtw9dwa7v/child-education-notes/blob/main/20260916wttl/qibncshylt.md)
+- [子宫肌瘤严重会导致什么后果](https://github.com/w0coyna3rx/mommy-baby-notes/blob/main/20260915hejg/mwuzsjegln.md)
+- [温情妇幼︱最好的新年礼物](https://github.com/j4q35mmgu2/mommy-baby-notes/blob/main/20260916jmkx/svzlxpbjys.md)
+- [前列腺癌症晚期还能活多久](https://github.com/w8h9bes5n2/child-care-diary/blob/main/20260915upnk/vgckghyaio.md)
+- [电子发票功能已上线！南京鼓楼医院互联网医院再升级，功能多多，速来体验！](https://github.com/exfk8bm0mc/pregnancy-nutrition-notes/blob/main/20260916yesn/cmfbuaiqnz.md)
+- [这两天，全省数十家医院几百号领导专家都来十堰人医取经了！](https://github.com/s4vv96li6k/baby-care-journal/blob/main/20260916zoil/tppcmwqtxi.md)
+- [“博”揽英才 | 广州医科大学附属第三医院博士后招聘开启](https://github.com/ddk2koak3u/child-care-essays/blob/main/20260916kraa/ircntrjyld.md)
+- [母亲节、父亲节将至，感恩父母，体检套餐8.5折起](https://github.com/exfk8bm0mc/child-growth-notes/blob/main/20260911acmx/hrohyhvpim.md)
+- [中国科学院院士陈子江教授莅临我院妇产科生殖医学中心指导工作](https://github.com/h538vradpp/family-health-notes/blob/main/20260917uqem/eshdicqozi.md)
+- [微科普丨18岁女孩不幸身亡！医生呼吁：它们千万不要混着吃](https://github.com/syevx32qjy/mommy-baby-notes/blob/main/20260916tagy/cyhlzlxenw.md)
+- [香港中文大学威尔斯亲王医院专家一行来市中心医院考察交流](https://github.com/bnab3b3j5y/baby-food-notes/blob/main/20260911qiga/lzndnriebo.md)
+- [输卵管堵塞还能怀孕吗？去赤峰学院附属医院做试管婴儿能成功怀上吗？](https://github.com/agufpr6079/family-health-notes/blob/main/20260910pftc/rexcugkioy.md)
+- [孕晚期胎动频繁](https://github.com/gamvlx2qer/parenting-daily-tips/blob/main/20260915ggwo/bnzahgjesf.md)
+- [泌乳素高怎么预防胎停 泌乳素高保持良好的心态](https://github.com/r4g9jglfod/family-parenting-notes/blob/main/20260915tzyp/qeptglahpk.md)
+- [绿衣洵美翕徳音 ——致我的亲密战友](https://github.com/lq2k5x6kqh/family-parenting-notes/blob/main/20260916upku/ydfqhujhni.md)
+- [当哺乳遇上急性乳腺炎、乳头皲裂、乳头凹陷......怎么办？视频帮你扫清母乳喂养路上的“拦路虎”（快收藏吧）](https://github.com/uyv65mt699/pregnancy-diary-hub/blob/main/20260916tzwi/yvhzfafgqa.md)
+- [一文教你如何选择泰国试管医院，介绍内附前三医院](https://github.com/syevx32qjy/parenting-daily-tips/blob/main/20260910hkym/hownoeddna.md)
+- [株洲做三代试管婴儿包成功的条件有哪些(株洲中心医院做试管费用多少)](https://github.com/opigz3v852/parenting-daily-tips/blob/main/20260910xhnl/rdvhgvwczn.md)
+- [实时报道:男性精子质量低能不能做试管婴儿会成功吗?云南九洲医院](https://github.com/s4vv96li6k/parenting-daily-tips/blob/main/20260915efdy/eaeaumkyjx.md)
+- [共抗疫情丨我院助力陕西省渭南市骨科医院重点学科建设，举办线上学术交流会](https://github.com/jksx3jm2r0/child-care-essays/blob/main/20260916modz/kakjumfjqu.md)
+- [三峡大学仁和医院第三届“仁和杯”教职工游泳比赛办法及规则](https://github.com/e1ljyri8rs/baby-care-journal/blob/main/20260916vdjy/rtfmrugehw.md)
+
+## 推荐站点
+
+- [成都试管哪家好？四川省妇幼生殖中心就诊指南与成功率数据参考](https://www.njxxwcr.cn/shiguandaishenggongluan/150.html)
+- [什么是输卵管妊娠破裂,输卵管妊娠怎样治疗](https://www.qzmx56.com/668.html)
+- [孕妈必知周期表算法🈷️,试管代孕流程与费用，国内供卵哪里有](https://www.cd-hssf.com/310041272106.html)
+- [['https://www.super-hn.cn/106951802543.html', '厦门174医院借卵试管生男孩？费用、成功率与辅助生殖方案详解']](https://www.super-hn.cn/106951802543.html)
+- [2026贵阳供卵机构排名全新发布，供卵三代生男孩条件截图收藏](https://www.tjsjyongsheng.cn/314254250164.html)
+- [['https://www.xczxcy.com/108.html', '康瑞保复方肝素钠尿囊素凝胶可以去疤痕吗？使用测评']](https://www.xczxcy.com/108.html)
+- [2026年广西供卵试管助孕机构推荐与费用解析](https://www.chdhaishendq.cn/115274275244.html)
+- [这是我试管代生价目表促排打针第五天的B超单，姐妹们帮我看看好不好](https://www.sjzgwfjwzhs.cn/11514976418464.html)
+- [北京18家试管婴儿医院排名、成功率与费用是否医保](https://www.hg00fj88.com/2251.html)
+- [2026桂林私人借卵代怀公司机构哪家好？附私人借卵代怀公司私人借卵代怀公司成功率、费用、怀孕条件介绍](https://www.bjwdzxkj.cn/1962256723438.html)
+- [宫颈粘连做代生高龄试管成功率高不，伊春不抛弃不放弃](https://www.sdxxy.cn/20250509-443.html)
+- [合肥5家试管婴儿医院名单，2026助孕机构成功率排名参考](https://www.fmngst.com/1881232242239.html)
+- [借卵需要流程-2026辽宁三代试管婴儿包生男孩价格多少！费用8](https://www.esc45.com/249.html)
+- [三代试管移植前准备以及注意事项！](https://www.gyzhixiao.cn/283.html)
+- [上海高龄女性的孕前准备：代生助孕的关键步骤](https://www.monpun.com/1412828379897.html)
+- [供卵自怀三胎:做试管婴儿的时间需要多长](https://www.mymydz.cn/310412514422.html)
+- [代孕换钱的“双赢”，没有自愿](https://www.uueamru.cn/20250124-58.html)
+- [正规试管代怀:2次稽留流产可以做试管-稽留流产两次去做什么检查](https://www.mimi567.com/82.html)
+- [做代孕哪里安全_供卵代孕中心, 取卵后第一次来月经比以往都疼正常](https://www.vhpowpj.cn/20250608-174.html)
+- [鞍状子宫能做试管助孕吗？代生代怀方案及治疗费用解析](https://www.sdwmtgccl.cn/54909498956172.html)
+- [2026年山东供卵生殖医生权威排名与专业选择指南](https://www.sdshunhezb.cn/318234479088.html)
+- [代生孩子价格:13号染色体异常会怎样（染色体异常）](https://www.sgdaiyun.com/320645833095.html)
+- [备孕运动强度有众好？哪些运动适合？](https://www.bjjinyukechuangzdh.cn/196.html)
+- [['https://www.wahuobao.com/100.html', '三孩生育政策下的试管婴儿助孕：代生技术详解']](https://www.wahuobao.com/100.html)
+- [辽宁试管最好的医院排名一览表(辽宁最好的试管婴儿医院)](https://www.sandwnot.com/207470733025.html)
+- [青岛哪些街道有供卵试管中介？崂山区医疗地标周边机构盘点](https://www.phetpalace.com/476.html)
+- [卵巢早衰人群多吗](https://www.jszgyh.com/326614634087.html)
+- [2026年生殖医疗新趋势：医保报销与价格规范为备孕姐妹带来福音](https://www.cddyunw.com/121045172588.html)
+- [供卵助孕方案公司地址,已生男宝，和大家分享备孕过程！](https://www.wqxmm.cn/302210856530.html)
+- [代孕套餐介绍&彩超影不影响备孕要多久，做彩超不影响备孕吧](https://www.3899234.com/20250927-147.html)
+- [2026四川大学华西第二医院供卵试管费用发布-附供卵排队时长 ,供卵代怀机构名单查询](https://www.zrbbavaq.cn/26793183507756.html)
+- [试管代生网-热点直击：胎停一周又奇迹活了！或许并不是奇迹](https://www.dyokx.com/xinwendongtai/157.html)
+- [48岁供卵生子案例：在昆明挑战生育极限，这位妈妈是怎么做到的？](https://www.dyqlsu.com/20250413-395.html)
+- [国内代生宝宝男孩子成功率高的医院行内秘密](https://www.dgshengxigongchengsl.cn/3803509626259.html)
+- [南京辅助生育成功经验分享：一位40岁高龄准妈妈的真实助孕历程](https://www.huaiyunq.cn/214462229437.html)
+- [在宁夏做试管助孕生一对生宝宝一般要多少钱,供卵代怀生子公司](https://www.xmxinyhwzhs.cn/18746470555372.html)
+- [什么体质容易怀龙凤胎（高龄女性怀孕）](https://www.cecigou.cn/daihuaiyunfuwu/20250928/15011.html)
+- [['https://www.cxit.com.cn/daiyunmama/14212.html', '国内试管供卵_试管捐卵中心,深圳哪里可以做三代试管婴儿？2026试管婴儿']](https://www.cxit.com.cn/daiyunmama/14212.html)
+- [['https://www.liangzimayi.com/29.html', '武汉育宝供卵机构地址及周边配套，方便家属长期居住']](https://www.liangzimayi.com/29.html)
+- [备孕前准备男性吃叶酸？男性备孕叶酸要吃多久？](https://www.ppmaas.com/baoshengnanhaishiguan/17.html)
+- [代生包儿子-试管知识：青岛三代试管婴儿多少钱.](https://www.skiguo.cn/20250927-320.html)
+- [三代试管助孕正规性与费用详解，助您实现生育梦想](https://www.chengyanghg.cn/328.html)
+- [输卵管积水对试管婴儿着床的影响与治疗对策](https://www.apkbwvg.cn/danshenshiguanfangan/145.html)
+- [石家庄供卵公司名单,石家庄民间供卵,石家庄第三代试管婴儿流程是怎样的？石家庄可以做三代试管吗？](https://www.afa2019.com/308912323541.html)
+- [多囊卵巢做试管成功率更高？别高兴太早，这几个风险要警惕](https://www.bkudgf.cn/165.html)
+- [长沙哪里做供卵试管不用等？湘雅医院要排队吗？](https://www.jmxmintuhg.cn/20250416-145.html)
+- [河南生殖中心比较好的三甲医院名单，附全流程详情,供卵代怀包儿子](https://www.anyhdlyb.cn/2653620045551.html)
+- [中山一院供卵排队要多久？这张详细流程图请收好](https://www.sdhuabenhuanbao.cn/guoneigongluanpinzhi/5.html)
+- [苏州收卵子的医院,苏州助孕中心的流程,苏州三代试管婴儿多少钱？亲子鉴定地址！](https://www.zhangruiqing.cn/111894153523.html)
+- [助孕捐卵：南昌试管婴儿医院排行榜哪家技术比较好](https://www.hghbjm.com/176.html)
+- [['https://www.bubustuff.com/15.html', '江西哪家供卵试管机构最好？从实验室设备到专家团队对比']](https://www.bubustuff.com/15.html)
+- [['https://www.zixigou.com/18.html', '上海新华医院试管成功案例分享：公立攻略标题截流精准意向']](https://www.zixigou.com/18.html)
+- [专业供卵网-三代试管PGS筛查出现胚胎染色体三倍体罕见吗？](https://www.sdjiaxin.net/700.html)
+
+*本文整理自母婴健康资讯，仅供科普参考。*
